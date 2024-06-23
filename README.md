@@ -1,3 +1,3 @@
 It is xszo, Xelios Zukto.
 
-<https://gravatar.com/xszo>
+<https://sites.google.com/view/xszo/>
